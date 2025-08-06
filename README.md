@@ -37,4 +37,3 @@ Si tienes dudas o quieres contactarme, puedes hacerlo a través de [https://www.
 
 ---
 
-Si tienes dudas o quieres contactarme, puedes hacerlo a través de [tu email o LinkedIn].
